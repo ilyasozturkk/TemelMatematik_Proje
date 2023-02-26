@@ -1,0 +1,1 @@
+# TemelMatematik_Proje
